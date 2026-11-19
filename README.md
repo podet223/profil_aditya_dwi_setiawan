@@ -1,1 +1,0 @@
-# profil_aditya_dwi_setiawan
